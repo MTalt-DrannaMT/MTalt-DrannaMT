@@ -1,0 +1,3 @@
+-  Hi, I’m MTalt-DrannaMT
+- I am the creator of drannaMT studios and the game RenaYa.
+- if you have any good ideas for my new game, post it in youtube(via video or community post), github, itch.io
